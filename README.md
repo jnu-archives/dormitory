@@ -16,3 +16,6 @@
 知乎链接：https://www.zhihu.com/question/413577697
 
 微博链接：[江南大学未经学生同意改造宿舍](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E5%8D%97%E5%A4%A7%E5%AD%A6%E6%9C%AA%E7%BB%8F%E5%AD%A6%E7%94%9F%E5%90%8C%E6%84%8F%E6%94%B9%E9%80%A0%E5%AE%BF%E8%88%8D%23&from=default)
+
+b站链接：https://www.bilibili.com/video/BV1854y1i7nA?from=search&seid=11711711833237032196
+
