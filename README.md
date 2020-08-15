@@ -13,6 +13,14 @@
 
 另一个投稿版本：[点击查看](https://s1.ax1x.com/2020/08/13/d9uOrn.jpg)
 
+## 2020/8/15 更新
+
+同学整理的时间线：[时间线整理——江南大学宿舍不合理改造事件.pdf](https://github.com/jnu-archives/dormitory/blob/master/%E6%97%B6%E9%97%B4%E7%BA%BF%E6%95%B4%E7%90%86%E2%80%94%E2%80%94%E6%B1%9F%E5%8D%97%E5%A4%A7%E5%AD%A6%E5%AE%BF%E8%88%8D%E4%B8%8D%E5%90%88%E7%90%86%E6%94%B9%E9%80%A0%E4%BA%8B%E4%BB%B6%EF%BC%88%E6%9C%AA%E5%AE%8C%E5%BE%85%E7%BB%AD%EF%BC%89.pdf)
+
+李园的护园同学对此事件的详细记录：[备忘录](http://url.cn/mQkBdW4J)
+
+## 其他
+
 知乎链接：https://www.zhihu.com/question/413577697
 
 微博链接：[江南大学未经学生同意改造宿舍](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E5%8D%97%E5%A4%A7%E5%AD%A6%E6%9C%AA%E7%BB%8F%E5%AD%A6%E7%94%9F%E5%90%8C%E6%84%8F%E6%94%B9%E9%80%A0%E5%AE%BF%E8%88%8D%23&from=default)
